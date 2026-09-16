@@ -1,6 +1,6 @@
 
 <h4 align="center">⠀⠀ 
   
-![](https://file.garden/amFUbnSgVTH7NHKQ/imageedit_1_6512075989.png)
+![](https://files.catbox.moe/nvmc8v.png)
 
 [‎‎新𝐁𝐎𝐎𝐊‎‎](https://calamity.atabook.org/)
